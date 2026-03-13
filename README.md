@@ -4,7 +4,7 @@ Software Engineer | AI & Full-Stack Developer
 
 📍 Barnala, India  
 📧 [sahilsidhu3127@gmail.com](mailto:sahilsidhu3127@gmail.com)  
-🌐 [https://me.webappster.store](https://me.webappster.store)  
+🌐 [https://sahilsidhu.pro](https://sahilsidhu.pro)  
 💻 [https://github.com/SahilSidhu7](https://github.com/SahilSidhu7)  
 🔗 [https://linkedin.com/in/sahil-sidhu-ai](https://linkedin.com/in/sahil-sidhu-ai)
 
